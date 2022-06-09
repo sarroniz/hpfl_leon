@@ -11,7 +11,7 @@ ________________________________________________________________________________
 #### La Comunicación
 #### Pragmática
 ### - Registro y Cortesía
-### Fonética
+- Fonética
 ### Rasgos Suprasegmentales
 ### Morfología
 ### Sintaxis
