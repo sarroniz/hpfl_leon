@@ -8,8 +8,8 @@ ________________________________________________________________________________
 
 ## Ogranización del curso
 
-### La Comunicación
-### Pragmática
+#### La Comunicación
+#### Pragmática
 ### Registro y Cortesía
 ### Fonética
 ### Rasgos Suprasegmentales
