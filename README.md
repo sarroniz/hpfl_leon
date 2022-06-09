@@ -10,7 +10,7 @@ ________________________________________________________________________________
 
 - La Comunicación
 - Pragmática
-- - Registro y Cortesía
+- Registro y Cortesía
 - Fonética
 - Rasgos Suprasegmentales
 - Morfología
