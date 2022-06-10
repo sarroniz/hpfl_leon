@@ -40,5 +40,5 @@ ________________________________________________________________________________
 
 
 # Día 2: La Comunicación
-https://indiana-my.sharepoint.com/:p:/g/personal/sarroniz_iu_edu/EXErvGJqnBhNpUqDFfpiouUBRIqjfKMCaibKLcCmdLNPAw?e=e6XqPV
+(Link a PPT)[https://indiana-my.sharepoint.com/:p:/g/personal/sarroniz_iu_edu/EXErvGJqnBhNpUqDFfpiouUBRIqjfKMCaibKLcCmdLNPAw?e=e6XqPV]
 
