@@ -42,3 +42,7 @@ ________________________________________________________________________________
 # Día 2: La Comunicación
 [Link a PPT](https://indiana-my.sharepoint.com/:p:/g/personal/sarroniz_iu_edu/EXErvGJqnBhNpUqDFfpiouUBRIqjfKMCaibKLcCmdLNPAw?e=e6XqPV)
 
+# Día 4: Pragmatica 2
+[Link a PPT](https://indiana-my.sharepoint.com/:p:/g/personal/sarroniz_iu_edu/Ebt1Cgn8rl1NvadMGYNowioBHi09fvYa0ajRtn3_wwpB5g?e=FJ81Oh)
+
+
