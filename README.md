@@ -45,5 +45,8 @@ ________________________________________________________________________________
 # Día 4: Pragmatica 2
 [Link a PPT](https://indiana-my.sharepoint.com/:p:/g/personal/sarroniz_iu_edu/Ebt1Cgn8rl1NvadMGYNowioBHi09fvYa0ajRtn3_wwpB5g?e=FJ81Oh)
 
-# Día 6: Pragmatica 3
+# Día 5: Pragmatica 3
 [Link a PPT](https://indiana-my.sharepoint.com/:p:/g/personal/sarroniz_iu_edu/EXA_ypb--SJAoOpEWAMesygBTlRd96K3F1LcIqFK7Irfig?e=4wGcr1)
+
+# Día 6: Cortesía
+[Link a PPT](https://indiana-my.sharepoint.com/:p:/g/personal/sarroniz_iu_edu/EY4INDWAeu5DqaP-bsBnCasB_Z81Tzy_t67SNM06mbf0Ww?e=BrD034)
