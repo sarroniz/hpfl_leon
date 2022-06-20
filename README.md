@@ -50,3 +50,8 @@ ________________________________________________________________________________
 
 # Día 6: Cortesía
 [Link a PPT](https://indiana-my.sharepoint.com/:p:/g/personal/sarroniz_iu_edu/EY4INDWAeu5DqaP-bsBnCasB_Z81Tzy_t67SNM06mbf0Ww?e=BrD034)
+
+___________________________________________________________________________________________    
+
+# Día 7: Fono 1
+[Link a PPT](https://indiana-my.sharepoint.com/:p:/g/personal/sarroniz_iu_edu/EU-hC1O6KMlOl-zbJlfNNnwBUJhSxRYBNABhU8Ckl0eFMg?e=UaHvnM)
