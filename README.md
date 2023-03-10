@@ -1,4 +1,5 @@
 # Día 1: Introducción
+[Link a PPT](https://indiana-my.sharepoint.com/:p:/g/personal/sarroniz_iu_edu/EXErvGJqnBhNpUqDFfpiouUBXQ98fCaRdHleo7o-Am8U2g?e=IMPMg6)
 
 ## Libro de clase - página 3
 #### 1. ¿Qué piensas cuando escuchas "clase de lingüística"? ¿Qué crees que vamos a estudiar?
