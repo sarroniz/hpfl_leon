@@ -49,7 +49,7 @@ ________________________________________________________________________________
 [Link a PPT](https://indiana-my.sharepoint.com/:p:/g/personal/sarroniz_iu_edu/EXA_ypb--SJAoOpEWAMesygBTlRd96K3F1LcIqFK7Irfig?e=4wGcr1)
 
 # Día 6: Cortesía
-[Link a PPT](https://indiana-my.sharepoint.com/:p:/g/personal/sarroniz_iu_edu/EY4INDWAeu5DqaP-bsBnCasBsRuuYEFM_zs8Uo6sOh4meA)
+[Link a PPT](https://indiana-my.sharepoint.com/:p:/g/personal/sarroniz_iu_edu/EY4INDWAeu5DqaP-bsBnCasBsRuuYEFM_zs8Uo6sOh4meA?e=VQvSoK)
 
 ___________________________________________________________________________________________    
 
